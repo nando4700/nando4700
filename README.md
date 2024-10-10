@@ -1,16 +1,19 @@
-## Hi there 👋
+## Hi there 👋👑🍀
 
-<!--
-**nando4700/nando4700** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é Luiz fernando 
 
-Here are some ideas to get you started:
+16 anos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+solteiro 
+
+escuto lana del rey
+
+odeio cólica 
+
+tenho 1,80
+
+jogo volei 🏐
+
+caso haja interesse me chama no zap (11) 985054163
+
+![]()
